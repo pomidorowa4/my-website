@@ -4,4 +4,5 @@ ahhaahhah
 
 kameramen
 
-why u do this
+this is bad ziemniaczek
+why
